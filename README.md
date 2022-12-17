@@ -31,11 +31,26 @@ If anyone on Facebook or any other platform is telling you they're us, they are 
 ---
 
 **Telegram!**
-> Yep Join us! [@Telegram]()
+> Yep Join us! [@Telegram](https://t.me/telegram)
 Our telegram official channels.
-- []()
-- []()
-- []()
-- []()
-- []()
-- []()
+- Telegram stands for freedom and privacy and has many easy to use features. [@TelegramTips](https://t.me/TelegramTips)
+- For users from Brazil [@TelegramBR](https://t.me/TelegramBR) & [TelegramTipsBR](https://t.me/TelegramTipsBR)
+- For users from Spanish [@TelegramES](https://t.me/TelegramES)
+- For users from Arabic [@TelegramTipsAR](https://t.me/TelegramTipsAR)
+- This channel is managed by the Telegram team to inform users about updates related to auctions for usernames and other items on the Telegram platform. [@username](https://t.me/username)
+- Telegram Premium – a subscription that lets you support Telegram's continued development and gives you access to exclusive additional features. [@premium](https://t.me/premium)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
